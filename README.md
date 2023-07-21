@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-    <img width="650" src="https://files.catbox.moe/shwes4.png" alt="">
+    <img width="550" src="https://files.catbox.moe/shwes4.png" alt="">
 </p>
 
 <p align="center">
@@ -19,13 +19,13 @@ bjghjgbhkjihbnjuhukihjuoihiohuibhuhhgu i <3 k'
 <p align="center">
 "Try biting, you worthless piece of crap."
 </p>
-
-
-
-
-
+ㅤ
+ㅤ
+ㅤ
+ㅤ
+ㅤ
 <p align="center">
-    <img width="150" src="https://files.catbox.moe/zp25ed.png" alt="">
+    <img width="350" src="https://files.catbox.moe/71doty.png" alt="">
 </p>
 
 #
