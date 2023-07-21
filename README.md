@@ -21,7 +21,7 @@ bjghjgbhkjihbnjuhukihjuoihiohuibhuhhgu i <3 k'
 </p>
 
 <p align="center">
-    <img width="400" src="https://files.catbox.moe/zp25ed.png" alt="">
+    <img width="150" src="https://files.catbox.moe/zp25ed.png" alt="">
 </p>
 
 #
