@@ -1,16 +1,27 @@
-### Hi there 👋
+#
 
-<!--
-**bIackout/bIackout** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+"Enough barking."
+</p>
 
-Here are some ideas to get you started:
+<p align="center">
+    <img width="200" src="https://files.catbox.moe/c5k98g.gif" alt="">
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+    <img width="100" src="https://www.fightersgeneration.com/characters2/k-intro-walk.gif" alt="">
+</p>
+
+<p align="center">
+bjghjgbhkjihbnjuhukihjuoihiohuibhuhhgu i <3 k'
+</p>
+
+<p align="center">
+"Try biting, you worthless piece of crap."
+</p>
+
+<p align="center">
+    <img width="400" src="https://files.catbox.moe/rydub8.png" alt="">
+</p>
+
+#
