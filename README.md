@@ -9,7 +9,7 @@
 </p>
 
 <p align="center">
-    <img width="100" src="https://www.fightersgeneration.com/characters2/k-intro-walk.gif" alt="">
+    <img width="500" src="https://files.catbox.moe/y9dakw.png" alt="">
 </p>
 
 <p align="center">
